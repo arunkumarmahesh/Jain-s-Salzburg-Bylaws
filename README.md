@@ -1,1 +1,0 @@
-# Jains-Salzburg-Bylaws
